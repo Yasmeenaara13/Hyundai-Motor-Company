@@ -1,3 +1,2 @@
-- 👋🏻 Hi, I'm @Yasmeenaara13
-- 👀 I'm interested in computer coding
-- 🌱 I'm currently under graduated student
+Comprehensive Digital Marketing For Hyundai Motor Company
+It is a South Korea Multinational Automotive Manufacturer, headquartered in Seoul, South Korea. 
