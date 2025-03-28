@@ -1,0 +1,3 @@
+- 👋🏻 Hi, I'm @Yasmeenaara13
+- 👀 I'm interested in computer coding
+- 🌱 I'm currently under graduated student
